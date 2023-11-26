@@ -1,4 +1,4 @@
 # Retamar faustina
-*6°2 avionica.*
-*tengo 17 años.*
-*soy de Ezpeleta, Quilmes, y juego voley en Banco Provincia La Plata*
+*7°2 avionica.*
+*tengo 18 años.*
+*soy de Ezpeleta, Quilmes, y juego voley en Mutual Policial*
